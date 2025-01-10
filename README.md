@@ -6,6 +6,7 @@
 - 💬 Ask me about **react etc**
 
 - 📫 How to reach me **amirhsmz@yahoo.com**
+- Telegram : @amirsmz
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
